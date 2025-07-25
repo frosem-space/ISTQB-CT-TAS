@@ -1,1 +1,0 @@
-# ISTQB-CT-TAS
